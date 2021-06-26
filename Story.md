@@ -1,1 +1,1 @@
-The Itty Bitty Spider can't go up the drain because it was raining he kept trying but he couldnt do it until the rain has passed. Once the rain has passed he could finally climb up the drain and reach the top.Then Spider 2 did the same thing.
+The Itty Bitty Spider can't go up the drain because it was raining he kept trying but he couldnt do it until the rain has passed. Once the rain has passed he could finally climb up the drain and reach the top.Then Spider 2 did the same thing.They celebrated the achievment 
